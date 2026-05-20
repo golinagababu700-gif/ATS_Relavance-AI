@@ -1,2 +1,0 @@
-Hi Tema
-d kbsdkfndsfbksdbfsd
